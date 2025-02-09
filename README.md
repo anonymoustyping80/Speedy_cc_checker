@@ -1,1 +1,0 @@
-# Speedy_cc_checker
